@@ -7,4 +7,5 @@
 - 🩷 Fun fact: i like cats and cute things !
 - Other: I'm multifandom, multishipper (nothing bad!), and i rp, but not on pt LOL
 - kins: cosmo, shelly, gf, nene, neo agent 3, anget 8
+- be sure to read my carrd for more
 - Thank you for reading :] - Ivy
