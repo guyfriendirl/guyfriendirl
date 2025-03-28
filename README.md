@@ -1,0 +1,8 @@
+- 🎀 Hi, I’m @cosmosbakery or Ivan/Ivy~
+- 🍓 I’m interested in art, animation, writing, website coding
+- 🥐 I’m currently learning animation & website coding
+- 💞️ I’m looking to collaborate on art or writing!
+- 🍫 How to reach me @guyfriendirl on discord !
+- 💌 Pronouns: He/It + Any Neopronouns
+- 🩷 Fun fact: i like cats and cute things !
+- Thank you for reading :] - Ivy
