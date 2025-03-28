@@ -5,4 +5,5 @@
 - 🍫 How to reach me: @guyfriendirl on discord !
 - 💌 Pronouns: He/It + Any Neopronouns
 - 🩷 Fun fact: i like cats and cute things !
+- Other: I'm multifandom, multishipper (nothing bad!), and i rp, but not on pt LOL
 - Thank you for reading :] - Ivy
