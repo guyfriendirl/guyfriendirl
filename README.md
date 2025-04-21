@@ -2,7 +2,7 @@
 - 🍓 I’m interested in art, animation, writing, website coding
 - 🥐 I’m currently learning animation & website coding
 - 💞️ I’m looking to collaborate on art or writing!
-- 🍫 How to reach me: @guyfriendirl on discord !
+- 🍫 How to reach me: @guyfriendirl on discord ! (pls add me I need friends)
 - 💌 Pronouns: He/It + Any Neopronouns
 - 🩷 Fun fact: i like cats and cute things !
 - Other: I'm multifandom, multishipper (nothing bad!), and i rp, but not on pt LOL
