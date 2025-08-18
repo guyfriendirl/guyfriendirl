@@ -1,4 +1,4 @@
-- 🎀 Hi, I’m @cosmosbakery or Ivan/Ivy~
+- 🎀 Hi, I’m @guyfriendirl or Ivan/Ivy~
 - 🍓 I’m interested in art, animation, writing, website coding
 - 🥐 I’m currently learning animation & website coding
 - 💞️ I’m looking to collaborate on art or writing!
