@@ -13,8 +13,8 @@
 - if i have someone blocked or hidden thats ur friend lmk and ill tell u the reason, i often only block ppl for triggering me or harassing me. intentionally or not. i am kinda sensitive to some topics (not saying which) so i block for that reason, but before i do i might let a friend know also. i dont mean to induce harassment or bullying, in fact it is the opposite of what i want. i apologize if i have caused anyone any trouble.
 
 -  **REALLY SELECTIVE / NONSHARING HACKLORD YUME , I *WILL* UNFRIEND YOU IF YOU MAKE ME UNCOMFORTABLE.**
--  **REALLY SELECTIVE TELAMON YUME**
--  Selective Shedletsky Yume !!
+-  **REALLY SELECTIVELY SHARING TELAMON YUME**
+-  Selectively Sharing Shedletsky Yume !!
 
  
  fictkins: c00lkidd, builderman, cosmo, girlfriend/guyfriend, shelly :] 
