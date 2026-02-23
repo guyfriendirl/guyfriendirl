@@ -12,4 +12,4 @@
   
 - if i have someone blocked or hidden thats ur friend lmk and ill tell u the reason, i often only block ppl for triggering me or harassing me. intentionally or not. i am kinda sensitive to some topics (not saying which) so i block for that reason, but before i do i might let a friend know also. i dont mean to induce harassment or bullying, in fact it is the opposite of what i want. i apologize if i have caused anyone any trouble.
 
-- I like men . ok.
+- I like men . ok. i have a boyfriend,... 
